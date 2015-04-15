@@ -38,7 +38,9 @@ If you don't do something quickly, this marshmallow belly will digest you!
 
 Marshmallows are going to rule the world!
 
-Hold the image of the marshmallow and..
+Hold the image of the marshmallow and
+
+Sing softly the song of its people as you..
 
 Do you:
 
